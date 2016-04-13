@@ -1,0 +1,2 @@
+# CSGODouble-Automatic-Bot
+Putas
